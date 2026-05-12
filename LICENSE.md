@@ -1,4 +1,4 @@
-# 
+# Enhance SQL Server Management Studio for PC | SQL Server Management Studio for Windows with premium SQL Server Management Studio for PC | SQL Server Management Studio for Windows
 
 
 
